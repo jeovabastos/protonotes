@@ -1,0 +1,1 @@
+começar com uma delas, sem postar, apenas para pegar o hábito
